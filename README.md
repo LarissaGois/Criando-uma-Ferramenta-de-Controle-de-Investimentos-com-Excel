@@ -45,6 +45,6 @@ Ideal para planejar seu objetivo de longo prazo de viver de renda. Preencha os s
 
 ---
 
-A planilha contém **dois simuladores poderosos e complementares**:
+A planilha contém **dois simuladores poderosos e complementares**: [Planilha Online - Simuladores de Investimentos e Renda Passiva](https://1drv.ms/x/c/2fafee40bc4a3b74/EQ6hShHrenxIgSPhx4_H3YMBoSqxbr4zdmazS7RfdH5pSw?e=kJaPIE)
 
 **LARISSA S GOIS** - [https://www.linkedin.com/in/larissa-gois/](https://www.linkedin.com/in/larissa-g%C3%B3is/)
