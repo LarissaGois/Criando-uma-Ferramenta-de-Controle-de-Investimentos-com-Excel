@@ -46,4 +46,5 @@ Ideal para planejar seu objetivo de longo prazo de viver de renda. Preencha os s
 ---
 
 A planilha contém **dois simuladores poderosos e complementares**:
-…* **LARISSA S GOIS** - [https://www.linkedin.com/in/larissa-gois/](https://www.linkedin.com/in/larissa-g%C3%B3is/)
+
+**LARISSA S GOIS** - [https://www.linkedin.com/in/larissa-gois/](https://www.linkedin.com/in/larissa-g%C3%B3is/)
